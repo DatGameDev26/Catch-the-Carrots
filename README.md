@@ -1,1 +1,1 @@
-![Ảnh minh họa](https://drive.google.com/uc?export=view&id=1zdaqV1mWWxRMHni-kbkJEFA7afFX039u)
+![Ảnh minh họa](https://drive.google.com/uc?export=view&id=1Hhn9DeJw4zqUzh7-brYie1nHtY9OG24m)
